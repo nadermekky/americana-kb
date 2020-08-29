@@ -1,1 +1,1 @@
-# amricana-kb
+# americana-kb
